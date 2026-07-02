@@ -17,4 +17,5 @@ Yes i am trying to get my discord account back for a false ban
 plz support me by making a support ticket Saying "Justice For Sxmjo!!!"
 
 
-
+# Update 1 
+## This is broken, wait until fix
